@@ -1,2 +1,1 @@
-# mama-and-me
-Mother &amp; Baby Care Products
+# MAMA & ME Project
